@@ -97,14 +97,11 @@ Working with ReputationBoss will allow you to worry about what you do best and l
 
 For your no-obligation 24 Hour ExpressQuote to see the cost, timing, and strategy to get your own Wikipedia page in the world's encyclopedia seen by billions, please visit: 
 
-Get your 24 Hour ExpressQuote
-
+Get your 24 Hour ExpressQuote: [
+](https://repboss.com/wikipedia/)
  
 
 https://en.wikipedia.org/wiki/Reputation_management
-
- 
-
 
 
 Media Contact
